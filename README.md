@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Real projects of the technology industry
 - 📫 How to reach me:
   - My email address is: anthony.rodriguezloyola@gmail.com
-  - My Instagram is: [Anthony Rodriguez](https://instagram.com/thony_3023)
+  - My Instagram is: [Anthony Rodriguez](https://instagram.com/thony.rl) (thony.rl)
       
 
 <!---
